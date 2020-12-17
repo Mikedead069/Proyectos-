@@ -1,2 +1,2 @@
 # Proyectos -
-Amor al codigo <3
+Ya tamos ready :3
