@@ -1,2 +1,2 @@
 # Proyectos -
-Ya tamos ready :3
+Ya pero eres o no eres :3
