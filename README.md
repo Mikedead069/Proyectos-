@@ -1,2 +1,2 @@
 # Proyectos -
-Amor al codigo <3
+Ya pero eres o no eres :3
